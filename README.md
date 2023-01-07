@@ -1,3 +1,1 @@
 # Situation
-
-Love art!
